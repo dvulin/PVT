@@ -1,2 +1,2 @@
 # PVT
-PVT course ar UNIZG-RGNf
+PVT course at UNIZG-RGNf
